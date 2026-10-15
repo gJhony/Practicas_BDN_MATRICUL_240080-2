@@ -4,7 +4,7 @@
 
 **Docente:** M.T.I. Marco A. Ramírez Hernández[cite: 1]  
 **Periodo:** Septiembre - Diciembre 2026[cite: 1]  
-
+ hola
 ---
 
 ### Tabla de Prácticas de la Materia[cite: 1]
